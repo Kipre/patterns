@@ -1,3 +1,3 @@
-# My sewing patters
+# My sewing patterns
 
 1. jeans "new man"
